@@ -1,2 +1,6 @@
 # cfo
-Chief Financial Officer
+chief financial officer
+
+# hub
+where i intend to manage my ~future~ wealth. 
+the vision is a personal self managed family office. bear with me.
